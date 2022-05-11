@@ -1,3 +1,5 @@
+ᴀ ᴘᴏᴡᴇʀ ғᴜʟʟ  ᴍᴜsɪᴄ ʙᴏᴛ ᴏғ ᴛᴇʟᴇɢʀᴀᴍ😎😎
+
 <img src="https://telegra.ph/file/489701c1943b78779a0d8.jpg" align="right" width="400" height="400"/>
 
 
@@ -9,7 +11,7 @@
 
 > Want detailed explanation of Heroku Deployment? [Click Here](https://github.com/Bhataktiop/atmaop.git)
 
-
+ᴄʀᴇᴀᴛᴇʀ:- {ᴍʀ ʙʜᴀᴛᴀᴋᴛɪ} (https//t.me/ZINDA_H_TU_MERE_LIYE_HEART_HACK)
 
 
 
